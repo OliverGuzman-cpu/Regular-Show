@@ -5,7 +5,7 @@ con su habilidad para divertirse, mientras Mordecai intenta ser responsable :fac
 y hacer un buen trabajo, al final se deja convencer por su amigo.:zany_face:
 
 Puedes encontrar mucha mas información en [Wikipedia](https://en.wikipedia.org/wiki/Regular_Show).
-
+Para poder ver algunos capitulos o la serie completa puedes visitar la siguiente pagina [imbd](https://www.imdb.com/title/tt1710308/)
 ![This is an image](https://media.npr.org/assets/img/2014/03/28/rs_m-r_pointing-d6a6ba81fbab7d59c9e5cb244db8d4653c6b5676-s1100-c50.jpg)
 
 Personajes:
